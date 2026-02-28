@@ -1,1 +1,0 @@
-Bible computer wiki
